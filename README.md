@@ -6,3 +6,4 @@ This repository contains my personal writings on history, theology, and contempo
 
 ## Content
 
+1. [The Kizhi Island Pilgrimage](./writing/kizhi-island-pilgrimage.md)
