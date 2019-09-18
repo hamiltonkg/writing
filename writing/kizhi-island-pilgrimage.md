@@ -1,4 +1,4 @@
-# The Kizhi Island Pigrimage
+# The Kizhi Island Pilgrimage
 <i>September 2019</i>
 
 ![kizhi-island-title](./images/kizhi-island/kizhi-01.png)
