@@ -7,7 +7,7 @@
 
 Kizhi Island, Russia is home to the 17th-century Kizhi Pogost (<i>Кижский погост</i>), which is comprised of the Church of the Transfiguration (<i>Церковь Преображения Господя</i>), the Church of the Intercession of the Virgin Mary (<i>Церковь Покрова Пресвятой Богородицы</i>), and a bell tower; Orthodox Christian (<i>православный</i>) services are still held there to this day. 
 
-Beyond that, the island is home to more than thirty Kizhi is located in the Korelia region, which has alternately been under the jurisdiction of Sweden, Finland, and Russia. Joseph Stalin regained the territory from the Finns during the three-month Winter War of 1939 at the cost of around 150,000 Soviet lives citing the region's proximinity to Leningrad (modern-day Saint-Petersburg) as the reason for launching his invasion.
+Kizhi is located in the Korelia Region, which has alternately been under the jurisdiction of Sweden, Finland, and Russia. Joseph Stalin regained the territory from the Finns during the three-month Winter War of 1939 at the cost of around 150,000 Soviet lives citing the region's proximinity to Leningrad (modern-day Saint-Petersburg) as the reason for launching his invasion.
 
 Kizhi Island is accessible from the nearby city of Petrozavodsk (<i>Петрозаводск</i>), the latter being founded in 1703 by Pyotr I the Great in order to exploit the region's rich iron ore resources for his burdgeoning Baltic Fleet, but archaeological evidence shows that the area has been inhabited for thousands of years. The eastern bank of Lake Onega is decorated by almost twenty kilometers of Neolithic period petroglyphs dated back more than 10,000 years.<sup>[1](#further-reading)</sup>
 
