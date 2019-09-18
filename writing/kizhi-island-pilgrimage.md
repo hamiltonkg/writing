@@ -5,7 +5,7 @@
 
 ## Introduction
 
-Kizhi Island, Russia is home to the 17th-century Kizhi Pogost (<i>Кижский погост</i>), which is comprised of the Church of the Transfiguration (<i>Церковь Преображения Господя</i>), the Church of the Intercession of the Virgin Mary (<i>Церковь Покрова Пресвятой Богородицы</i>), and a bell tower; Orthodox Christian (<i>православный</i>) services are still held there to this day. 
+Kizhi Island, Russia is home to the 18th-century Kizhi Pogost (<i>Кижский погост</i>), which is comprised of the Church of the Transfiguration (<i>Церковь Преображения Господя</i>), the Church of the Intercession of the Virgin Mary (<i>Церковь Покрова Пресвятой Богородицы</i>), and a bell tower; Orthodox Christian (<i>православный</i>) services are still held there to this day. 
 
 Kizhi is located in the Korelia Region, which has alternately been under the jurisdiction of Sweden, Finland, and Russia. Joseph Stalin regained the territory from the Finns during the three-month Winter War of 1939 at the cost of around 150,000 Soviet lives citing the region's proximinity to Leningrad (modern-day Saint-Petersburg) as the reason for launching his invasion.
 
