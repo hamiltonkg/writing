@@ -47,6 +47,14 @@ This inspired a contradictory reaction inside of me. On the one hand, what a wor
 
 ![belfry](./images/kizhi-island/kizhi-10.png)
 
+## Conclusion
+
+Visiting Kizhi Island marked the first time I had traveled within the northwest of Russia since moving here almost four years ago. I've been to the south of course, I've been outside of the city to see the suburbs, but I'd never been deep into the Karelia Region beyond just the occassional train ride to Finland. For shame. Seeing the pristine nature, the endless skylines, the simplicity, and especially, Kizhi Island were well worth sitting in horrendous traffic both ways on a single-lane highway dotted with accidents from over-anxious drivers making passes a bit too closely.
+
+Spending time on Kizhi Island reminded me why I yearn for small-town life, despite spending the majority of my life in the big city. Sitting down by the water and listening to the lake, listening to the bird, listening to nothing at all. No cell phones buzzing, no car horns blaring, no screaming people, no metro, no buses. Gerd Von Rundstedt once lamented that, 'the vastness of Russia devours us,' during the unsuccessful Operation Barbarossa, whereby Nazi Germany broke Rule #1 of conventional war and marched on Moscow. I certainly didn't feel devoured by the vastness of Russia, I felt embraced by her vastness.
+
+![vast-russia](./images/kizhi-island/kizhi-02.png)
+
 ## Further Reading
 
 1. United Nations Educational, Scientific, and Cultural Organization (UNESCO); <i>[Petroglyphs of Lake Onega and the White Sea](https://whc.unesco.org/en/tentativelists/6358/)</i>; 2018
