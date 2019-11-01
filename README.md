@@ -9,3 +9,4 @@ See more of my writing at [r/AskHistorians](https://www.reddit.com/r/AskHistoria
 ## Content
 
 1. [The Kizhi Island Pilgrimage](./writing/kizhi-island-pilgrimage.md)
+2. [Analysis of 'War, History, Ideology'](./writing/war-history-ideology.md)
