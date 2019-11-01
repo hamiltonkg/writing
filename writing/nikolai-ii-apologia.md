@@ -1,5 +1,5 @@
 # Apologia for Nikolai II
-<i>October 2019<>
+<i>October 2019</i>
 
 ![](./images/nikolai-ii/nikolai-ii.png)
 
