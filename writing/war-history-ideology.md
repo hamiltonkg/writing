@@ -1,4 +1,6 @@
 # Analysis of 'War, History, Ideology'
+<i>November 2019</i>
+
 
 ![](./images/war-history-ideology/war-history-ideology.png)
 
