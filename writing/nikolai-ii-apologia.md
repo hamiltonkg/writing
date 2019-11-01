@@ -12,7 +12,7 @@ As the title above implies, I believe that answer to be a resounding no.
 
 Nikolai II was an imperfect, bigoted, and occasionally hapless leader. I concede all that. But a traitor? And worse than that, a <i>weak</i> traitor? I beg to differ.
 
-![](./images/nikolai-ii-2.png)
+![](./images/nikolai-ii/nikolai-ii-2.png)
 
 This is a person who inherited an empire that witnessed some form of armed insurrection under nearly every ruler who took power from the time that Pyotyr I (the Great) struggled for the throne in the seventeenth century. Perhaps that may just lead a reader to support the negation of my proposal with the idea that had Nikolai II just had his wits about him, he would have simply crushed the insurrection like nearly every Romanov had done before him; I think the overall efficacy of a hugely centralized system like the Russian autocracy is likely to be hugely handicapped in the twentienth century of stock markets, wide-spread industrialization, and organized Marxism when compared to every earlier interation (including the one managed by his own grandfather) of the Romanov dynasty.
 
